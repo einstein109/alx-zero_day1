@@ -1,1 +1,1 @@
-some text for this this project
+i hated highschool
