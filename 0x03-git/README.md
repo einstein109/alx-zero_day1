@@ -1,1 +1,1 @@
-Some of my texts
+some text for this this project
