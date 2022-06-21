@@ -1,1 +1,1 @@
-i am einstein
+Some of my texts
